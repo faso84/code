@@ -30,3 +30,19 @@ Foto delle cover: da aggiungere.
 
 - **Subito.it, Facebook, Shpock:** testi così come sono.
 - **Vinted:** togliere "trattabile" e "Consegna a mano o spedizione" (offerte e spedizione gestite dall'app).
+
+# Fumetti
+
+## Storie da Altrove "L'artiglio che si strinse sull'America" — 4,50 €
+
+Vendo Storie da Altrove "L'artiglio che si strinse sull'America" (Sergio Bonelli Editore), 148 pagine. Spin-off di Martin Mystère: nel 1851 Garibaldi collabora con la base segreta "Altrove".
+Ottimo stato.
+Prezzo 4,50 €. Consegna a mano o spedizione.
+
+## Cattivik The Best n. 24 — 3 €
+
+Vendo Cattivik The Best n. 24 (Macchia Nera), prezzo di copertina L. 3000.
+Buono stato.
+Prezzo 3 €. Consegna a mano o spedizione.
+
+Piattaforme: Facebook Marketplace, Subito.it, Vinted (su Vinted togliere "Consegna a mano o spedizione").
